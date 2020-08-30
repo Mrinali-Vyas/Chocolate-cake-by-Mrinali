@@ -1,1 +1,2 @@
-# Chocolate-cake-by-Mrinali
+This recipe of chocolate cake is going to be very very tasty and very very easy. 
+Master the chocolate cake with an airy, light sponge and rich buttercream filling. It's simple enough for an afternoon tea but special enough for a party too!
